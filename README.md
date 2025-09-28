@@ -3,7 +3,13 @@
   <img width="70" src="https://komarev.com/ghpvc/?username=Daxboggs&color=e9c036&label=parts">
 
 
+
+
+
+
 </p>
+
+
  
 
 
@@ -21,4 +27,8 @@ WORK IN PROGRESS !!
   [rentry](https://rentry.co/CAREPAD_) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook](https://ccharmz.atabook.org)
 
   this is a cnp but i'll likely make custom links later !! ✫
+
+  check out the DaxBoggs roblox rng [here](https://www.youtube.com/@DaxBoggs/videos) : ) !!
+  
+  (its neat lowkey imo)
 </p>
