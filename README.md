@@ -30,5 +30,5 @@ WORK IN PROGRESS !!
 
   check out the DaxBoggs roblox rng [here](https://www.youtube.com/@DaxBoggs/videos) : ) !!
   
-  (its neat lowkey imo)
+  (its somewhat unserious but funny imo)
 </p>
