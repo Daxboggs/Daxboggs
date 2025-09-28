@@ -1,16 +1,24 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**Daxboggs/Daxboggs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  <img width="70" src="https://komarev.com/ghpvc/?username=Daxboggs&color=e9c036&label=parts">
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</p>
+
+
+
+ [MAIN](https://github.com/Pixelbrickz_)
+
+
+
+
+WORK IN PROGRESS !!
+</p>
+
+<div align="center">
+  
+  
+  [rentry](https://rentry.co/CAREPAD_) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook](https://ccharmz.atabook.org)
+
+  this is a cnp but i'll likely make custom links later !! ✫
+</p>
