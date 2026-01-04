@@ -18,7 +18,7 @@
 
 
 
-WORK IN PROGRESS !!
+WORK IN PROGRESS ;- ;
 </p>
 
 <div align="center">
@@ -26,9 +26,9 @@ WORK IN PROGRESS !!
   
   [rentry](https://rentry.co/CAREPAD_) ‎ 𖹭‎ ‎  [strawpage]()‎‎  ‎  𖹭 ‎  [pronoun.cc](https://pronouns.cc/@CCharmsz) ‎‎   𖹭‎ ‎  [atabook](https://ccharmz.atabook.org)
 
-  this is a cnp but i'll likely make custom links later !! ✫
+  this is a cnp but i'll likely make custom links later ok? ok ✫
 
-  check out the DaxBoggs roblox rng [here](https://www.youtube.com/@DaxBoggs/videos) : ) !!
+  check out the DaxBoggs [here](https://www.youtube.com/@DaxBoggs/videos) 
   
-  (its somewhat unserious but funny imo)
+
 </p>
