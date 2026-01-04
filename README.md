@@ -28,7 +28,7 @@ WORK IN PROGRESS ;- ;
 
   this is a cnp but i'll likely make custom links later ok? ok ✫
 
-  check out the DaxBoggs [here](https://www.youtube.com/@DaxBoggs/videos) 
+  check out DaxBoggs [here](https://www.youtube.com/@DaxBoggs/videos) 
   
 
 </p>
